@@ -1,1 +1,0 @@
-# USC-Scavenger-Hunt
